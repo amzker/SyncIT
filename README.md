@@ -1,2 +1,4 @@
 # SyncIT
-WELL SYNC THE SHIT 
+WELL SYNC 
+
+- dont have energy to remove it
